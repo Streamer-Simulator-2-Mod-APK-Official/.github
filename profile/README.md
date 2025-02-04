@@ -4,9 +4,9 @@
 
 *Streamer Simulator 2* is an immersive and engaging simulation game where you can step into the role of a content creator. In this game, you'll manage your own streaming career, create content, build your follower base, and upgrade your equipment to take your streaming empire to the next level.
 
-# [ ⬇️**Download Streamer Simulator 2** ⬇️](https://apkbros.com/streamer-life-simulator-2-mod-apk/)
-
 [![Download Streamer Simulator 2 Mod APK 1.2.4 for iOS](https://img.shields.io/badge/Download%20Streamer%20Simulator%202%20Mod%20APK%201.2.4%20for%20iOS-%2300BFFF.svg?style=flat&logo=apple&logoColor=white)](https://apkbros.com/streamer-life-simulator-2-mod-apk/)
+
+# [ ⬇️**Download Streamer Simulator 2** ⬇️](https://apkbros.com/streamer-life-simulator-2-mod-apk/)
 
 The *Streamer Simulator 2 Mod APK 1.2.4* gives you **unlimited money**, making it easier to unlock all features and items instantly without the need for in-app purchases or grinding.
 
