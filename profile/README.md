@@ -10,7 +10,7 @@
 
 The *Streamer Simulator 2 Mod APK 1.2.4* gives you **unlimited money**, making it easier to unlock all features and items instantly without the need for in-app purchases or grinding.
 
-![Image](https://github.com/user-attachments/assets/ba5e9744-fc1d-478f-ba8f-6acd4bfcfd5f)
+![Image](https://github.com/user-attachments/assets/2e81bf0c-ae29-4811-9f52-05e0ca0d28fa)
 
 ## Key Features of Streamer Simulator 2 Mod APK 1.2.4
 
